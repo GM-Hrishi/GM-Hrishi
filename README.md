@@ -1,5 +1,5 @@
 #  About Me:
-love working on and creating random new projects
+I work on random stuff
 
 
 ## Socials:
